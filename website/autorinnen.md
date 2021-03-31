@@ -17,4 +17,5 @@ ehemalige wissenschaftliche Hilfskraft am Institut für Pädagogik (Abteilung Se
 
 Juniorprofessorin der Sexualpädagogik mit dem Schwerpunkt Gewaltprävention an der Christian-Albrechts-Universität zu Kiel
 
-[Weitere Informationen zur Kieler Juniorprofessur für Sexualpädagogik finden Sie hier.] (http://sexualpaedagogik.uni-kiel.de).
+
+Aktueller Kontakt der Projektleitung: anja.henningsen@fh-kiel.de; Fachochschule Kiel, Professur für Geschlechterkompetenz/Diversität in der Sozialen Arbeit
